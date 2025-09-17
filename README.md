@@ -74,4 +74,5 @@ It is organized into:
 
 **Stefan Radovic**  
 MSc Financial Economics – Erasmus University Rotterdam  
-📧 stefanradovic279@yahoo.com
+📧radovicstefan480@gmail.com
+
